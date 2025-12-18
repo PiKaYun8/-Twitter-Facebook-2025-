@@ -1,4 +1,3 @@
-# -Twitter-Facebook-2025-
 # 🚀 跨境出海必看：如何安全稳定访问 Twitter 和 Facebook？2025年防封号实操手册
 
 Clash/SS/SSR/V2ray/机场节点推荐/跨境社交媒体运营/安全上网插件
